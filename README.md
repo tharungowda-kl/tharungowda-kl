@@ -1,4 +1,4 @@
-# Hi there, I'm [Your Name] 👋
+# Hi there, I'm Tharungowda K L 👋
 
 ### 💻 Aspiring Software Developer | java Developer | Tech Enthusiast
 
